@@ -9,4 +9,4 @@ Integrantes:
 
 Enlace de video de la entrega 2 en Youtube:  https://youtu.be/3YS1TixEtY0
 
-Enlace al vídeo de la entrega final en Youtube: 
+Enlace al vídeo de la entrega final en Youtube: https://www.youtube.com/watch?v=AckgZcNq_60
